@@ -12,7 +12,10 @@ Spenser, *The Faerie Queene*
 Shwyzer, *Literature and Nationalism*
 
 **Week 4**
-Armitage, David, *The Origins of the British Empire*
+Armitage, David, *The Ideological Origins of the British Empire*
 
 **Week 5**
 Davies, R.R., *The First English Empire*
+
+**Week 6**
+Elliot, *Empires of the Atlantic*
