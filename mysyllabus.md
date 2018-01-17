@@ -11,5 +11,5 @@ Spenser, *The Faerie Queene*
 **Week 3**
 Shwyzer, *Literature and Nationalism*
 
-**Week 4*
+**Week 4**
 Armitage, David, *The Origins of the British Empire*
