@@ -19,3 +19,6 @@ Davies, R.R., *The First English Empire*
 
 **Week 6**
 Elliot, *Empires of the Atlantic*
+
+**Week 7**
+Pagden, *Ideologies of Empire*
